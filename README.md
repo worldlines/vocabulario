@@ -1,0 +1,2 @@
+# vocabulario
+Vocabulario para
